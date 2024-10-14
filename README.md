@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @togelonline303
 - 👀 I’m interested in togel
 - 🌱 I’m currently learning togel online
-- 💞️ I’m looking to collaborate on togel online indonesia
+- 💞️ I’m looking to collaborate on togel hongkong Indonesia such live draw hk on HongkongLottery.Id
 - 📫 Visit TotoLottery.Id website to reach our togel online updates https://totolottery.id
 - 😄 Pronouns: Togel
 - ⚡ Fun fact: Togel Online is a traditional game that became popular on the internet.
